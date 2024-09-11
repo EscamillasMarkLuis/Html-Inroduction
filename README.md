@@ -1,0 +1,6 @@
+![avatar](https://github.com/user-attachments/assets/98564f1b-e4b6-4d67-81f0-f329653d8264)
+![Screenshot 2024-09-01 181438](https://github.com/user-attachments/assets/47ff4d40-ca4e-4a59-b333-36bca8c30f46)
+![chess](https://github.com/user-attachments/assets/2e0264cc-df06-4be7-9dec-b569e8e5bae4)
+![drawing](https://github.com/user-attachments/assets/edb37d9e-8027-4107-ab10-1e3c06b94546)
+![tarantula](https://github.com/user-attachments/assets/09ba5689-dc32-4972-a338-6f0e3dac6964)
+![download](https://github.com/user-attachments/assets/4c310833-7031-43e1-baec-3ef8552dcc16)
